@@ -1,4 +1,4 @@
-
+bridger western Script updated is the best bridger western Script, featuring no cooldown and auto-collect. Safe and powerful for all your needs.
 
 
 
